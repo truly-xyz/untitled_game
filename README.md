@@ -1,1 +1,14 @@
 do not delete the credits file or you will be executed
+
+w00h00 guys! This game is a joke
+
+i do not expect it to become popular
+it is very shitty
+and not very good
+
+but here are some reviews from local residents:
+Cat: meow
+Dog: bark
+Lion: roar
+dad: ...
+me: exteremyl good game
