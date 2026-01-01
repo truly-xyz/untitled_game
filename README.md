@@ -9,6 +9,4 @@ and not very good
 but here are some reviews from local residents:
 Cat: meow
 Dog: bark
-Lion: roar
-dad: ...
-me: exteremyl good game
+
