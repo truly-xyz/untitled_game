@@ -10,3 +10,6 @@ but here are some reviews from local residents:
 Cat: meow
 Dog: bark
 
+|Is this game very good?  | :x:                |
+| Is it cheaply made?     | :white_check_mark: |
+| Is it multiplayer?      | :white_check_mark: |
